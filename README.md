@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python, Java, and UI/UX Design
 - 📫 How to reach me (don't)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love bread
+- ⚡ Fun fact: I love bread and walking (which might be weird to some)
 
 <!---
 kar1man/kar1man is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
