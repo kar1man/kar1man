@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kar1man
 - 👀 I’m interested in the Cybersecurity field
-- 🌱 I’m currently learning Python and UI/UX Design
+- 🌱 I’m currently learning Python, Java, and UI/UX Design
 - 📫 How to reach me (don't)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love bread
