@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kar1man
-- 👀 I’m interested in the kuwan
-- 🌱 I’m currently learning magkuwan
-- 📫 How to reach me >_<
+- 👀 I’m interested in the void
+- 🌱 I’m currently learning my purpose in life
+- 📫 How to reach me: "It's lonely at the top" /s
 - 😄 Pronouns: Fry/Chicken
 - ⚡ Fun fact: I love bread
 
