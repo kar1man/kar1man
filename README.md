@@ -5,6 +5,8 @@
 - 😄 Pronouns: Fry/Chicken
 - ⚡ Fun fact: I love bread
 
+I main Cypher in VALORANT
+
 <!---
 kar1man/kar1man is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
