@@ -6,6 +6,7 @@
 - ⚡ Fun fact: I love bread
 
 I main Cypher in VALORANT
+kariman#huh
 
 <!---
 kar1man/kar1man is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
