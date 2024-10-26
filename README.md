@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kar1man
 - 👀 I’m interested in chocolate-filled buns
-- 🌱 I’m currently learning my purpose in life
+- 🌱 I’m currently learning my...
 - 📫 How to reach me: "It's lonely at the top" /s
 - 😄 Pronouns: Kara/Age
 - ⚡ Fun fact: I love bread
